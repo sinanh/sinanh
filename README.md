@@ -1,5 +1,3 @@
-### Hi there 👋
-
 Engineer, craftsman, learner.
 Lived and worked in 🇹🇷🇯🇵🇺🇲🇨🇭.
 
