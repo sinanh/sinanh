@@ -1,5 +1,5 @@
 Engineer, craftsman, learner.
-Lived and worked in 🇹🇷🇯🇵🇺🇲🇨🇭.
+Lived and worked in 🇹🇷🇯🇵🇺🇲🇨🇭
 
 
 <!--
