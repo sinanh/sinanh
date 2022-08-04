@@ -1,5 +1,4 @@
-Engineer, craftsman, learner.
-Lived and worked in 🇹🇷🇯🇵🇺🇲🇨🇭
+
 
 <!--
 **sinanh/sinanh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
